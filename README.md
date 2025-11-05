@@ -1,5 +1,7 @@
 # 🔥 **נר לרגלי דברך**
 
+<img width="1536" height="1024" alt="Cosmic PathLight in Fiery Glow" src="https://github.com/user-attachments/assets/e4e68610-e0d3-412d-82d8-f421e7d8cc4c" />
+
 **(PathLight – PL)**
 **תאריך:** ה' בחשוון תשפ"ו · 5/11/2025
 **שעה:** 14:27 (ישראל)
