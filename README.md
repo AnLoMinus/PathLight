@@ -1,8 +1,6 @@
 # 🔥 **נר לרגלי דברך**
 
-<img width="1536" height="1024" alt="Cosmic PathLight in Fiery Glow" src="https://github.com/user-attachments/assets/e4e68610-e0d3-412d-82d8-f421e7d8cc4c" />
-
-<img width="1280" height="900" alt="image" src="https://github.com/user-attachments/assets/1fe9fbd5-9c99-4d31-90fc-fda330061c13" />
+<img width="1536" height="1024" alt="PathLight — CrownSpark Galaxy Frame" src="https://github.com/user-attachments/assets/643e0204-5358-4c8a-a987-d9140bfe0c56" />
 
 
 **(PathLight – PL)**
